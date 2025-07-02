@@ -1,1 +1,0 @@
-# luizreginaldo-bionexo.github.io
